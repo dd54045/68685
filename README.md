@@ -20,4 +20,4 @@
 
 收藏本页，作为你长期稳定的日本AV免费资源站。我们持续更新，不断优化，所有资源永久免费，无需注册、无需下载，简单便捷。更多类别的精选资源和专题页将会持续更新，帮助你发现更多你喜欢的内容。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/dd54045/68685 ）</span>
